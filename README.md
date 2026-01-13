@@ -1,3 +1,3 @@
 # TRANSFORMERS-
 
-Research paper jaroor pahdhio 
+Research paper jaroor padhio 
